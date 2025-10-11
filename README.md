@@ -6,3 +6,4 @@ net zoals een:
 "Pwooooaahh met 3 karren... Hoe kunjedat bestuurn?!"
 je weet toch
 HOE DAN?!
+ja toch? niet dan? -> als je dit leest, weet je hoe het klinkt #IYKYK
